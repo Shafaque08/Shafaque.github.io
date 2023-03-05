@@ -1,4 +1,4 @@
-# [shafaque.github.io](https://github.com/Shafaque08)
+# [Shafaque.github.io](https://github.com/Shafaque08)
 
 ## Sections 
   a. Profile \
